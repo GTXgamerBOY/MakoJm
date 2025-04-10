@@ -1,2 +1,0 @@
-# MakoJm
-Denisse
